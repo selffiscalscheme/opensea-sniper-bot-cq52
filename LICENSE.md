@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with professional opensea sniper bot | metadata-parsing + collection-scanning, the #1 opensea sniper bot. Includes metadata-parsing and
 
 
 
